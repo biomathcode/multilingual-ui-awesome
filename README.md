@@ -18,4 +18,12 @@
 
 
 
+## Indian Websites
+
+- [Kannada social media](https://sampada.net/)
+- [Telagu newspaper site](https://eemaata.com/em/)
+
+
+
+
 
